@@ -7,13 +7,11 @@ chords for ableton push 2 in chromatic mode
     </a>
 </p>
 
-This is one of the few things I managed to do since 2016 as former students from colégio militar (largo da luz, portugal) some associated with law enforcement @PSP enforced an extrajudicial cybertorture sentence of cognitive impairment and vibrotactil genital torture sabotaging learning [Claire de Lune](https://www.youtube.com/watch?v=XkgyOZxIw0k) and force self-mutilation to provide morbid content for a spectacle of psychiatric fraud, false therapy and directing violence towards others!
+This is one of the few things I managed to do since 2016 as former students from colégio militar (largo da luz, portugal) some associated with law enforcement @PSP enforced an extrajudicial cybertorture sentence of cognitive impairment and vibrotactil genital torture with the grotesque sonic payload of kisses, distorted, amplified and delivered to the entirity of my brain mass, sabotaging learning [Claire de Lune](https://www.youtube.com/watch?v=XkgyOZxIw0k) to force genital self-mutilation and provide morbid content for a spectacle of psychiatric fraud, false therapy and directing violence towards others!
 
 More info at:
 
 [https://strikles.github.com](https://strikles.github.com)
-
-# [Alberto Cortez. "Las palmeras"](https://www.youtube.com/watch?v=Xw6Sb7esGYo)
 
 ```
 Las palmeras
@@ -54,6 +52,7 @@ No digas no
 Oh, con las palmeras
 Yo he de morir
 ```
+##### [Alberto Cortez. "Las palmeras"](https://www.youtube.com/watch?v=Xw6Sb7esGYo)
 
 <p align="center" width="100%">
     <a href="https://strikles.github.com">
