@@ -1,7 +1,6 @@
 # chords
 chords for ableton push 2 in chromatic mode
 
-
 <p align="center" width="100%">
     <a href="c major.jpg">
         <img src="c major.jpg">
@@ -56,3 +55,8 @@ Oh, con las palmeras
 Yo he de morir
 ```
 
+<p align="center" width="100%">
+    <a href="https://strikles.github.com">
+        <img src="Kiss_Gif_Animation.gif">
+    </a>
+</p>
